@@ -1,1 +1,1 @@
-pythonたのちい
+pythonたのちいよ
